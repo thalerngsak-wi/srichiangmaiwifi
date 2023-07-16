@@ -1,0 +1,2 @@
+# srichiangmaiwifi
+datafreewifisrichiangmai
